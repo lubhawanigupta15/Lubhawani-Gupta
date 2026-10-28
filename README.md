@@ -1,4 +1,3 @@
-# Lubhawani-Gupta
 # Hi, I'm Lubhawani Gupta! 👋
 
 🎓 **PGDM Student at FIIB, New Delhi**
